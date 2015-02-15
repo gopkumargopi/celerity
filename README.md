@@ -44,6 +44,7 @@ Celerity Management Consultants is an organization committed to render end to en
 ##Careers
 
 **Job Seekers**
+
 Right Job Positioning is done by understanding the detailed qualities of each applicant on various parameters skill sets, interest, goals, cultural background etc. Find a right fit organization as per the matching qualities of candidates desired by the client. This positioning always helps candidates, not just to change a job but to build a long term career based on their career goals. This would give a happy, refreshing life in addition to better remuneration. 
 
 ***Resume Tips***
