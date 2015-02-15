@@ -47,12 +47,19 @@ Celerity Management Consultants is an organization committed to render end to en
 Right Job Positioning is done by understanding the detailed qualities of each applicant on various parameters skill sets, interest, goals, cultural background etc. Find a right fit organization as per the matching qualities of candidates desired by the client. This positioning always helps candidates, not just to change a job but to build a long term career based on their career goals. This would give a happy, refreshing life in addition to better remuneration. 
 
 ***Resume Tips***
+
 **Small things matter.**
+
 Make sure your resume includes your name, mailing address, phone numbers, and email address -- all possible ways you can be contacted.
+
 **Use active language.**
+
 Use active language and strong, energetic words. Employers want to hear about your accomplishments, not how well you carried out your assigned duties.
+
 **Get to the point straight.**
+
 It’s a smart idea to quickly capture an employer’s attention begin your resume with a specific, highly condensed summary of your professional background, skills, and attributes. A summary also helps to give your resume focus.
+
 **Proofread carefully.**
 
 It’s important to proof your resume for typos, misspellings, and grammatical errors.
